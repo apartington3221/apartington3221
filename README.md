@@ -9,4 +9,4 @@
 - 💬 Ask me about anything geek related. I might know a thing or two.
 - 📫 How to reach me: alexpartington1@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I've been a professional Chef for the last 8 years!
+- ⚡ Fun fact: I've been a professional Chef for 8 years!
